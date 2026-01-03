@@ -1,1 +1,0 @@
-# ancolide_script
